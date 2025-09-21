@@ -10,9 +10,15 @@ https://cdn.discordapp.com/attachments/1396995177125642346/1419408166705172653/i
 using reload backend but no credits until i have to call burlone to it?
 wow
 
-https://media.discordapp.net/attachments/1396995177125642346/1419406850691956786/image.png?ex=68d1a524&is=68d053a4&hm=b8e7dce0726edf7285f5acc3196c3dba63bb4646c349b3447407148c9ca170ab&=&format=webp&quality=lossless&width=928&height=523
+https://media.discordapp.net/attachments/1396995177125642346/1419406850691956786/image.png ex=68d1a524&is=68d053a4&hm=b8e7dce0726edf7285f5acc3196c3dba63bb4646c349b3447407148c9ca170ab&=&format=webp&quality=lossless&width=928&height=523
+
+
 https://media.discordapp.net/attachments/1396995177125642346/1419406851056996486/image.png?ex=68d1a524&is=68d053a4&hm=1e56ab22e89baff8b65146578233017e4df2933c0212f6d369561b0f87eff904&=&format=webp&quality=lossless
+
+
 https://media.discordapp.net/attachments/1396995177125642346/1419406851422032022/image.png?ex=68d1a524&is=68d053a4&hm=7e28ab48374b0050b7fc1c6831610ad7ac01c9cb8f2120dd34000d3d9db791c4&=&format=webp&quality=lossless
+
+
 https://media.discordapp.net/attachments/1396995177125642346/1419406851778281592/image.png?ex=68d1a524&is=68d053a4&hm=0fde5a240dcf56e14900acbf45094d6e2998fa28de793412a35dcc527dfe26f9&=&format=webp&quality=lossless
 
 switchting to 9.10 after joining oryxmp discord server? really cool man
